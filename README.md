@@ -20,9 +20,9 @@ On my free time I'm a weird person who watches lots of cartoons, play videogames
 
 - [My professional life](https://www.linkedin.com/in/mariana-hernandezh/)
 
-- [My designer life](https://www.behance.net/hector-reyes)
+- [My designer life](https://www.behance.net/mariana-hernandezh)
 
-- [My bird life](https://twitter.com/hector_reyes_)
+- [My bird life](https://twitter.com/mattxhttp)
 
 - [My secret life as an artist](https://www.instagram.com/themattfire/)
 
